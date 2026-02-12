@@ -1,1 +1,1 @@
-https://gayathridevi14007.github.io/portfolio-gayathri-devi/
+file:///C:/Users/gayat/OneDrive/Desktop/html/index.html
